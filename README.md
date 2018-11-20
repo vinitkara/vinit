@@ -1,0 +1,2 @@
+# vinit
+my favourite food
